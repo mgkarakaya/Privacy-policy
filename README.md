@@ -17,7 +17,7 @@ Personal data provided by e-mail are only used for support purposes and nothing 
 
 ## Contact
 
-To contact me on topics related to products, privacy policy or in another case, use *gokeng16@gmail.com*
+To contact me on topics related to products, privacy policy or in another case, use *mgkarakaya@gmail.com*
 
 Best regards!
 
